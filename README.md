@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lolotrox12
-- 👀 I’m interested in studying medicine 
-- 🌱 I’m currently learning chemistry on the human 
+- 👀 I’m interested in being a doctor in the future
+- 🌱 I’m currently learning medicine 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me andrevielman12@gmail.com
 
